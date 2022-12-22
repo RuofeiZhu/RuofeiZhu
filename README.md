@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RuofeiZhu
+- 👀 I have my insistence on some areas like aesthetics, music, food, but I’m also communicative, empathetic, and harmonious. 
+- 😼 I’m willing to hear suggestions or even some critiques because these improve me. I’m an optimistic pessimist. I’m also a combination of introvert and extrovert. When I’m interested in something, I will be excited and conversable; other times I keep calm.
+- 🌱 I’m currently learning design, 3D design, UI/UX design, and HCI design are all my future pursuit. 
